@@ -1,5 +1,5 @@
 # CAC
-We rely, in our approach, on the United Nations Charter for Children
+We rely, in our approach, on the United Nations Charter for Children.
 We adopt the basic principles of international humanitarian action, which are humanity, impartiality, neutrality, independence, transparency, unity and universality, in order to achieve security and protection for all eligible children in a way that guarantees a fair distribution of services and the quality of service provided to them because they deserve the best.
 Belief in our goals and work hard to achieve them.
 Child Appeal is a non-profit, neutral and independent organization that performs a purely humanitarian mission, contributes to the promotion of the dignity of poor children in general but orphans and children with disabilities in particular. It provides them with assistance and contributing to the development of their educational and professional abilities in order to ensure a better future for them. It also strives to avoid suffering by disseminating the international humanitarian values and principles.
